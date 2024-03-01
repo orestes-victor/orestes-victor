@@ -1,9 +1,4 @@
 
-
-
-🚀  I'm Looking for a new role. If hiring, please reach out!;
-
-
 ## My Skills
 
 - 💻 Programming languages:
